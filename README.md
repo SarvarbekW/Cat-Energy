@@ -1,0 +1,1 @@
+Mushuk ovqatining reklamasi
